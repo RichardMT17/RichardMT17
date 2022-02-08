@@ -1,5 +1,20 @@
 ### Hi there 👋
 
+
+# Halo semua! 
+
+Perkenalkan nama saya **Richard Martin T**.
+
+
+
+
+
+
+
+
+
+
+
 <!--
 **RichardMT17/RichardMT17** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
